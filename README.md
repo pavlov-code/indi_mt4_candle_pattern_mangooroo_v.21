@@ -217,3 +217,5 @@ Si el indicador le ha ayudado, puede apoyar al desarrollador:
 - **Email**: koare@hotmail.co.uk
 
 ---
+
+<img width="1544" height="799" alt="XAUUSDM1" src="https://github.com/user-attachments/assets/ccc1360c-e9a8-45e9-9f14-4fb2d50c51cc" />
